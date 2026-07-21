@@ -1,2 +1,2 @@
 # jennaliul.github.io
-hi,there. This is my personal pages
+hi,there. This is my personal page
